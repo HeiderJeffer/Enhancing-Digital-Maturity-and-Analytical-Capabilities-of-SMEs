@@ -55,3 +55,10 @@ This research directly aligns with the goals of the Graduate School of Advanced 
 
 ## Conclusion  
 This proposed research aims to create impactful solutions that empower SMEs to navigate the complexities of digital transformation effectively. Through close collaboration with Linnaeus University, industrial stakeholders, and the broader academic community, this study will generate valuable insights and tools that drive innovation and sustainability in the SME sector.
+
+“I authorize the processing of my personal data pursuant to art. 13 of Legislative Decree no. 196 of 30 June 2003 - "Personal Data Protection Code" and art. 13 of GDPR 679/16 - "European Regulation on the Protection of Personal Data".	
+
+Heider Jeffer
+
+29th November 29, 2024
+
